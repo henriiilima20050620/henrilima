@@ -1,5 +1,3 @@
-## Sobre mim
-
 ## Estatísticas
 
 <a href="">
